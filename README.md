@@ -9,6 +9,6 @@ Meu nome é Adilson Eduardo Tostes Carmo e tenho 16 anos
 
 ### Você pode entrar em contato comigo
 
-eduveltrini@gmail.com
+E-mail: eduveltrini@gmail.com
 
-@edu_tostess
+Instagram: @edu_tostess
